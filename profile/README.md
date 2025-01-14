@@ -1,11 +1,11 @@
 # Sprunki Retake: A Fresh Spin on Incredibox  
-## [Play Sprunki Retake 2025 Free on Browser](https://sprunkimax.com)  
+## [Play Sprunki Retake 2025 Free on Browser](https://sprunkimax.com/sprunki-retake/)  
 
 ---
 
 ## Overview  
 
-The **[Sprunki Retake](https://sprunkimax.com)** mod is an exciting 2025 update to the much-loved music game *Incredibox*. Known for its creativity and dynamic gameplay, this mod takes things to the next level with arcade visuals, many new characters, richer sounds, and fresh new features. Whether you're a longtime fan or new to *Incredibox*, Sprunki Retake offers a vibrant, playful, and immersive experience that will keep you coming back for more.  
+The **[Sprunki Retake](https://sprunkimax.com/sprunki-retake/)** mod is an exciting 2025 update to the much-loved music game *Incredibox*. Known for its creativity and dynamic gameplay, this mod takes things to the next level with arcade visuals, many new characters, richer sounds, and fresh new features. Whether you're a longtime fan or new to *Incredibox*, Sprunki Retake offers a vibrant, playful, and immersive experience that will keep you coming back for more.  
 
 ![Sprunki Retake](https://sprunkimax.com/uploads/2025/1/sprunki-retake.jpg)  
 
